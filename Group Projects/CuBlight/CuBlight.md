@@ -9,6 +9,8 @@
 **Date:** Fall 2022 - Spring 2023  
 **Class:** GAM 300/350 (game project class jr.)  
 **Where:** DigiPen Institute of Technology  
+
+Trailer Linked at the bottom
   
 **Team Composition:**  
 **Total Members:** 9 (not including me!)  
